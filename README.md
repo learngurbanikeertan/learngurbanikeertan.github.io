@@ -1,1 +1,0 @@
-# learngurbanikeertan.github.io
